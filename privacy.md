@@ -63,4 +63,4 @@ date above. Continued use of the App constitutes acceptance of any changes.
 
 If you have questions about this Privacy Policy, please contact:
 
-**Email:** your@email.com
+**Email:** hello_alan@163.com
